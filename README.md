@@ -1,2 +1,3 @@
 # ELG-Logos
-Logos of EasyLifeGaming
+Nothing but some logos
+xD
